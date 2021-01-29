@@ -1,7 +1,7 @@
 # Uladzislau Pinchuk
 
 [+375445154983](tel:+375445154983)  
-[freebka@gmail.com](freebka@gmail.com)  
+[freebka@gmail.com](mailto:freebka@gmail.com)  
 [LinkedIn](https://www.linkedin.com/in/uladzislau-pinchuk-1808061b5/)  
 Belarus, Minsk
 
